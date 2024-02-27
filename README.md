@@ -1,0 +1,1 @@
+![DayZ](dayzpng.png)
